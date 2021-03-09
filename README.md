@@ -2,6 +2,7 @@
 - 📊 I am an Operations Research Analyst and SMART Scholar @ the United States DoD
 - 🖥 I’m interested in data science, data analytics, and operations research
 - 📚 I’m currently studying data science @ USC in a MS Applied Data Science program
+- 🌅 Talk to me about anything related to veganism (5 years in and going strong!), travel, dogs, and the great outdoors!
 - 📫 Email me at madi.thompson64@gmail.com
 - 📸 Follow me on instagram @maddythomp7
 
